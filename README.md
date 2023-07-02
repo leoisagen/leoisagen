@@ -1,4 +1,4 @@
-Tianbiao Lliang Eng.D. Candidate at CQU.
+Tianbiao Liang Eng.D. Candidate at CQU.
 
 Causality Sciences / XAI and knowledge mining for intelligent manufacturing and management systems.
 

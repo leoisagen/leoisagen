@@ -1,10 +1,12 @@
-Tianbiao Lliang;
+Tianbiao Lliang Eng.D. Candidate at CQU.
 
-leodhu@icloud.com
+Causality Sciences / XAI and knowledge mining for intelligent manufacturing and management systems.
 
-tianbiaoliang@mail.dhu.edu.cn
+B.S → AHPU.
+M.E → DHU.
 
-iai-dhu.shanghai,China
+leodhu@icloud.com.
+1364342657@qq.com.
 
 researchgate→https://www.researchgate.net/profile/Tianbiao-Liang
 

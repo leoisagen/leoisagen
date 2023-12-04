@@ -1,12 +1,14 @@
-Tianbiao Liang Eng.D. Candidate at CQU.
+Tianbiao Liang (leoisagen)
 
-Causality Sciences / XAI and knowledge mining for intelligent manufacturing and management systems.
+Doctor of Engineering at Chongqing University (CQU).
+
+Causality Sciences / XAI and knowledge mining for intelligent sustainable manufacturing systems.
 
 B.S → AHPU.
 M.E → DHU.
 
+tbliang@stu.cqu.edu.cn
 leodhu@icloud.com.
-1364342657@qq.com.
 
 researchgate→https://www.researchgate.net/profile/Tianbiao-Liang
 
